@@ -9,3 +9,6 @@
 
 
 * [전달사항](https://goo.gl/lDUA6f).
+
+
+* [와글자글 담벼락](http://padlet.com/mtinet/3pgm4gj0k8e4). <- 담임샘이나 학급 친구들에게 하고 싶은 말이라면 무엇이든 쓰세요. 
