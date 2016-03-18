@@ -11,5 +11,8 @@
 * [전달사항](https://goo.gl/lDUA6f).
 
 
+* [창의적 체험활동 연간계획표](https://goo.gl/DJt449).
+
+
 * [와글자글 담벼락](http://padlet.com/mtinet/3pgm4gj0k8e4).   
 (담임샘이나 학급 친구들에게 하고 싶은 말이라면 무엇이든 쓰세요.)
